@@ -1,1 +1,1 @@
-![MasterHead](https://i.pinimg.com/originals/f4/5b/6d/f45b6d5067751dba894b13b05efcc634.gif)
+![MasterHead](https://i.pinimg.com/originals/4c/1c/be/4c1cbe77355420095315cabeb71d7e7c.gif)
